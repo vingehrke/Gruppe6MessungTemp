@@ -1,1 +1,0 @@
-# Gruppe6MessungTemp
